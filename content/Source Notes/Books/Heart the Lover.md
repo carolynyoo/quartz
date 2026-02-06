@@ -1,4 +1,6 @@
+---
 Read Date: 10/11/2025
+---
 ## Summary (incl. main characters, stakes, setting)
 The setting is college (unspecified location on the East Coast), and the female protagonist, nicknamed Jordan, is a senior. She meets two men in class, Sam and Yash. Sam first approaches her and asks her on a date. They date for a bit but their relationship is a bit doomed and toxic—he's super religious, she isn't. They don't really find conversation exciting, their main bond is physicality. During their first breakup she finds herself most bemoaning the loss of her friendship with his best friend Yash, who is humorous and charming. 
 Jordan and Sam officially break up. Jordan has also decided to stay an extra semester to write a thesis and take a seminar with Professor Gattrell who's a big influence on Sam and Yash's college experience. This decision to pursue her academic / writing dreams more seriously comes from Sam and Yash (and their other friend Ivan). She learns so much more about writing through Dr. Felske, her advisor, and this is really the start of her calling. 

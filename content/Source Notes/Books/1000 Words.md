@@ -1,10 +1,9 @@
-# 1000 Words
-
+---
 Author: Jami Attenberg
 Category: Books
-Date Finished: March 19, 2024
-Date Read: 2024/03/19
+Read Date: 2024/03/19
 Genre: Art
+---
 
 You can create a sense of isolation in your mind. You can tap into that hunger and desire to make something new. It’s all sitting right there. A pen, some paper, and your brain. 
 

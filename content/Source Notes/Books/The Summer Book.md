@@ -1,4 +1,6 @@
+---
 Read Date: July 2025
+---
 ## Summary (incl. main characters, stakes, setting)
 
 Grandmother and six year old Sophie live on a small island in Finland. Sophie has lost her mother (though this is never explicitly mentioned in the book). The two of them have summer adventures together and bicker like old friends. Sophie expresses her full emotions as a child and Grandmother grapples with her aging self.

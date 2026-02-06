@@ -1,4 +1,6 @@
+---
 Read Date: April 2025
+---
 ## Summary in 3 sentences
 This book by Amie McNee outlines reasons why you should create, and why the world wants to see your creations. It works through various limiting beliefs about "real artists" through Amie's distinct vulnerability.
 

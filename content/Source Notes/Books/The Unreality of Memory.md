@@ -1,4 +1,6 @@
+---
 Read Date: April 2025
+---
 ## Summary in 3 sentences
 Elisa Gabbert's essay collection delves into disaster, fear, memory, and selfhood. The reflections are philosophical, researched, and honest without centering the writer much at all.  
 

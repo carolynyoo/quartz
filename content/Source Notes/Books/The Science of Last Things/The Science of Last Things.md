@@ -1,12 +1,9 @@
-# The Science of Last Things
-
+---
 Author: Ellen Wayland-Smith
-Full Title: The Science of Last Things: Essays on Deep Time and the Boundaries of the Self
 Category: Books
-Date Finished: February 10, 2025
-Date Read: 2025/02/10
+Read Date: 2025/02/10
 Genre: Nonfiction
-
+---
 *Preface, X*
 
 In Aesop’s fable, the turtle, loath to leave the comfort of her home, declines an invitation to Zeus’s wedding celebration. For this breach of etiquette, Zeus condemns her to wander the world **lugging her home on her back** in perpetuity. 

@@ -1,4 +1,6 @@
+---
 Read Date: Summer 2025
+---
 ## Summary (incl. main characters, stakes, setting)
 Three part novel by [[Virginia Woolf]] set in Outer Hebrides at the Ramsays' vacation home. First part shows the Ramsay couple, children, and guests, notably single painter Lily Briscoe, Mr. Bankes, Charles Tansley (annoying), Mr. Carmichael, Minta and Paul. Second part is a short section denoting time passing and Mrs. Ramsay dead. Third part is some of the Ramsay family (Mr. Ramsay, Cam, James) and Lily Briscoe returning to the vacation home and grieving Mrs. Ramsay and noting changes of life. 
 The novel is written in stream-of-consciousness and is largely plotless. You meet a ton of characters and you get to see their inner monologues as they interact with each other. Then, Mrs. Ramsay dies, see how people process and have grown ten years later. The stakes here are really #time and the difficulty of human interaction and #relationships. And also maybe expectation of gender norms, clarified by Mr. Ramsay's emotional dependence on Mrs. Ramsay. 

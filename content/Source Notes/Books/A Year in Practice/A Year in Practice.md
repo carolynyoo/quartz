@@ -1,10 +1,9 @@
-# A Year in Practice
-
+---
 Author: Jacqueline Suskin
 Category: Books
-Date Finished: February 6, 2024
-Date Read: 2024/02/06
+Read Date: 2024/02/06
 Genre: Art, Spiritual
+---
 
 #cyclicalframework 
 

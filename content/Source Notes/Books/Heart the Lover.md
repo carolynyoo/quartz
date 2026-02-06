@@ -1,5 +1,5 @@
 ---
-Read Date: 10/11/2025
+Date: 10/11/2025
 ---
 ## Summary (incl. main characters, stakes, setting)
 The setting is college (unspecified location on the East Coast), and the female protagonist, nicknamed Jordan, is a senior. She meets two men in class, Sam and Yash. Sam first approaches her and asks her on a date. They date for a bit but their relationship is a bit doomed and toxic—he's super religious, she isn't. They don't really find conversation exciting, their main bond is physicality. During their first breakup she finds herself most bemoaning the loss of her friendship with his best friend Yash, who is humorous and charming. 

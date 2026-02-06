@@ -1,7 +1,7 @@
 ---
 Author: Jami Attenberg
 Category: Books
-Read Date: 2024/03/19
+Date: 2024/03/19
 Genre: Art
 ---
 

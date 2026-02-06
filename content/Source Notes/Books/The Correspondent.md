@@ -1,5 +1,5 @@
 ---
-Read Date: August 4, 2025
+Date: August 4, 2025
 ---
 ## Summary (incl. main characters, stakes, setting)
 

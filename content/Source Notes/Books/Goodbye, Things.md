@@ -1,5 +1,5 @@
 ---
-Read Date: July 2025
+Date: July 2025
 ---
 ## Summary in 3 sentences
 A book on #minimalism by Fumio Sasaki, a Japanese writer who got rid of most of his belongings (books, cameras, TV, kitchenware) and found energy and enthusiasm for life in the process. The book is structured mostly through 55 tips to help readers get rid of their belongings, as well as 12 ways the writer has changed since getting rid of his stuff. 

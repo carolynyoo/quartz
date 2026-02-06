@@ -1,5 +1,5 @@
 ---
-Read Date: Summer 2025
+Date: Summer 2025
 ---
 ## Summary (incl. main characters, stakes, setting)
 Three part novel by [[Virginia Woolf]] set in Outer Hebrides at the Ramsays' vacation home. First part shows the Ramsay couple, children, and guests, notably single painter Lily Briscoe, Mr. Bankes, Charles Tansley (annoying), Mr. Carmichael, Minta and Paul. Second part is a short section denoting time passing and Mrs. Ramsay dead. Third part is some of the Ramsay family (Mr. Ramsay, Cam, James) and Lily Briscoe returning to the vacation home and grieving Mrs. Ramsay and noting changes of life. 

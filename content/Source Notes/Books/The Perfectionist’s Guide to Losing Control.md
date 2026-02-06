@@ -2,7 +2,7 @@
 Author: Katherine Morgan Schafler
 Category: Books
 Genre: Self-help
-Read Date: April 2023
+Date: April 2023
 ---
 
 The observation that when **maladaptive perfectionists** do achieve “perfect,” when they hit their goal, even far exceed their goal, they aren’t satisfied. Dr. Karen Horney described this dissatisfaction as an **“inverse ratio” between success and inner security**: “instead of feeling, ‘I have done it’ he merely feels that ‘it happened.’ Repeated achievements in his field do not make him more secure, but more anxious.” (pg 91)

@@ -1,5 +1,3 @@
-#Spring
-
 ELEMENT: AIR 
 
 Newness, cleansing, blooming, erratic, growth, exposure, awakening, revealing, hectic, overflowing, vibrant, reckless, eager, frantic, loud, fertile, cacophony, propagation, acceleration 

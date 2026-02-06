@@ -1,7 +1,7 @@
 ---
 Author: Jacqueline Suskin
 Category: Books
-Read Date: 2024/02/06
+Date: 2024/02/06
 Genre: Art, Spiritual
 ---
 

@@ -1,4 +1,7 @@
-Read Date:
+---
+Date:
+---
+
 ## Summary (incl. main characters, stakes, setting)
 
 

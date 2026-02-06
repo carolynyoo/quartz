@@ -1,7 +1,7 @@
 ---
 Author: Ellen Wayland-Smith
 Category: Books
-Read Date: 2025/02/10
+Date: 2025/02/10
 Genre: Nonfiction
 ---
 *Preface, X*

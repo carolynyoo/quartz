@@ -1,3 +1,8 @@
+---
+tags:
+  - winter
+---
+
 ELEMENT: WATER 
 
 Quiet, contemplative, solitude, rest, slow, peaceful, sluggish, inward, introspection, pause, reflection, withdrawal, silence, focus, development, restoration, reverie

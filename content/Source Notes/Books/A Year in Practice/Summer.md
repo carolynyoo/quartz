@@ -1,3 +1,8 @@
+---
+tags:
+  - summer
+---
+
 ELEMENT: FIRE 
 
 Community, togetherness, relaxation, openness, connectivity, excitement, nurturing, performance, sharing, enthusiasm, fulfillment, validation, interdependence, celebration, collaboration, ease

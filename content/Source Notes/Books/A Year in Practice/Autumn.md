@@ -1,3 +1,8 @@
+---
+tags:
+  - autumn
+---
+
 ELEMENT: METAL 
 
 Harvest, gathering, clearing, preparation, stockpiling, maturation, balance, abundance, nostalgia, completion, activation, melancholy, discipline, bounty, preservation 

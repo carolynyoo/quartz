@@ -8,5 +8,5 @@ Sharing while keeping self private
 * freedom to get weird
 * bolder subjects, topics
 
-[[Performance taints intrinsic experience]]
+[[Performing documentation taints intrinsic experience of making]]
 [[How to Cultivate Mystery in Creative Work]]

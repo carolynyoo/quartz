@@ -1,7 +1,3 @@
-
-> ⁠Reading flattened from a verb into a coat that a person can wear. A good and joyful life turned into a product.⁠⁠
- —[Michael Rance](https://michaelrance.substack.com/p/you-can-live-the-wrong-life)
-
 <> “junk writing”, the romanticization of annotating and note taking
 
 ### What do we lose when documentation is required in the process? 
@@ -44,4 +40,14 @@ Appraisal of documentation is skill that is harder to develop when a picture per
 Younger people who grew up only knowing social media may have less of a gap of “doing” and “showing”. Documentation is an essential part of their experience.
 
 Even for millennials who remember life before social media these may be separate streams. Think of difficulty of getting used to reels, documenting in new ways.
+
+### Relevant quotes
+> Documentation is itself a form of content creation that provides satisfaction **without requiring the scary work of making things that might fail**.
+> [Joan Westenberg](https://www.joanwestenberg.com/claude-code-wont-fix-your-life/)
+
+> ⁠Reading flattened from a verb into a coat that a person can wear. A good and joyful life turned into a product.⁠⁠
+ —[Michael Rance](https://michaelrance.substack.com/p/you-can-live-the-wrong-life)
+
+>Not because I think #beauty is the most important place of moral change, but because I think it is the most accessible one. 
+>—[Iris Murdoch](https://thedorseypost.com/?p=7580)
 

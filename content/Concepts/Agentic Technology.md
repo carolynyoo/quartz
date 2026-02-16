@@ -6,10 +6,9 @@ Contrary to agentic AI, which focuses on the agency of _artificial intelligence_
 Social media platforms (rented space, metaphor of marketplace)
 
 ##### Agentic tech:
-Allows [[Folksonomy]]
-Decentralize / decenter 
-
-Currently preventing more agentic software: 
-Security measures requiring complex backend and auth
+* Allows [[Folksonomy]]
+* Decentralize / decenter 
+* Currently preventing more agentic software: 
+	* Security measures requiring complex backend and auth
 ### Sources
 Jacky Zhao's [Agentic Computing](https://jzhao.xyz/posts/agentic-computing)

@@ -1,0 +1,1 @@
+1. **Lambent**: glowing with soft radiance

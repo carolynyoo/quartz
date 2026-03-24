@@ -8,5 +8,7 @@ Sharing while keeping self private
 * freedom to get weird
 * bolder subjects, topics
 
+[[Edouard Glissant]]'s concept that we have the right to [[Opacity]]
+
 [[Performing documentation taints intrinsic experience of making]]
 [[How to Cultivate Mystery in Creative Work]]

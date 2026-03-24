@@ -1,0 +1,1 @@
+Starlings move and dance in autumn and winter, synchronizing movement, offering protection from predators

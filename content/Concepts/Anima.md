@@ -1,0 +1,1 @@
+**The inner feminine side of a man**, one of [[Carl Jung]]'s twin concepts of human psyche (the other is [[Animus]])

@@ -6,3 +6,4 @@
 * Youtube video essays
 * Zines under a pseudonym
 * Require a waiting period
+* 

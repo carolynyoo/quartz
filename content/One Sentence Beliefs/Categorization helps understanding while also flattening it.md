@@ -1,3 +1,4 @@
+### FRAMEWORKS
 MBTI, Enneagram, Human Design, astrology, numerology. There is such a dopamine hit to read a result describing one's self and see the traces of something you could never find the words to, or didn't realize the pattern of. But here it is, laid out, though how could you be possibly reduced to this one thing, this quiz or system based on a birth date that has never even spoken to you? 
 
 #cyclicalframework 
@@ -14,3 +15,16 @@ What makes a good framework:
 [Study from Holland's typology model (RIASEC)](https://pmc.ncbi.nlm.nih.gov/articles/PMC10013216/)
 
 Also think this could relate to *[[Man and his Symbols]]*
+
+### IMAGES
+* Desire to group similar images together, brand it as an "aesthetic" (noted in "[What aesthetic is this?](https://www.itsnicethat.com/articles/elizabeth-goodspeed-whats-in-a-name-categorising-aesthetics-creative-industry-190526)" by Elizabeth Goodspeed)
+* Some labels don't even exist until it's retroactively compressed (e.g. indie sleaze)
+* The best kinds of labels capture both the visual language the worldview
+	* Utopian Scholastic
+* Categorization hurts when it becomes the point—the flattening the only thing worth paying attention to, the aesthetic the only requirement to being affiliated with a movement
+
+### ALTERNATIVES
+* Embrace [[Opacity]]
+
+
+#categories

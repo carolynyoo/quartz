@@ -1,0 +1,10 @@
+{
+	"nodes":[
+		{"id":"a925be6b5be8e9a3","x":1795,"y":104,"width":400,"height":400,"type":"file","file":"Images/50948864378328d5b449ae112e3342f2.jpg"},
+		{"id":"8fa51bfb7b458b02","x":2240,"y":104,"width":400,"height":400,"type":"file","file":"Images/ff821281534eaaf914756b262f6567a6.jpg"},
+		{"id":"ca49d5550b828e25","x":-540,"y":-400,"width":400,"height":620,"type":"file","file":"One Sentence Beliefs/Boredom is a function of attention.md"},
+		{"id":"eb8c55bbd58431af","x":-100,"y":20,"width":331,"height":400,"type":"file","file":"Images/352660f55dddcc9d37620a0d5da74dfe.jpg"},
+		{"id":"6e76f1d043f528d5","x":-140,"y":-400,"width":250,"height":70,"type":"text","text":"Multitasking / multi media "}
+	],
+	"edges":[]
+}

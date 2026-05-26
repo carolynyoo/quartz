@@ -1,5 +1,6 @@
-# The Science of Last Things
-
+---
+Date: 2/10/2025
+---
 Author: Ellen Wayland-Smith
 Full Title: The Science of Last Things: Essays on Deep Time and the Boundaries of the Self
 Category: Books

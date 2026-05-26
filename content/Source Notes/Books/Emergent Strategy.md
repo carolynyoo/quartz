@@ -45,7 +45,7 @@ _Behavior, ideas, perspectives, emotional shifts_
 * As we change and transform, we also have everything we need already right inside of us.
 * Art is not neutral. It either upholds or disrupts the status quo, advancing or regressing justice.
 * **We don’t practice to feel good, we practice to feel more.**
-	* It takes 300 repetitions for muscle memory, 3000 for embodiment. I think about how I "don't like drawing" but what it does is allow me to expand my vision, to hold more patience, to see how I can keep toeing the line between precision and playfulness. 
+	* **It takes 300 repetitions for muscle memory, 3000 for embodiment**. I think about how I "don't like drawing" but what it does is allow me to expand my vision, to hold more patience, to see how I can keep toeing the line between precision and playfulness. 
 
 #### Vision
 * I am living a life I don’t regret.

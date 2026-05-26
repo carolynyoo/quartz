@@ -1,9 +1,10 @@
 ---
 tags:
   - film
+Date: 10/6/2025
 ---
 
-Watched October 6, 2025 on plane from LA to NY
+Watched on plane from LA to NY
 
 sports is a chance for other people to push us to excel
 

@@ -7,7 +7,7 @@
 
 > In which context will I want to stumble upon it again?
 
--From [[Quotes/Books/How to Take Smart Notes|How to Take Smart Notes]]
+-From _How to Take Smart Notes_
 
 ## Reading Books
 * *As you read*:

@@ -12,6 +12,8 @@ Theory by Martin Buber from his 1923 book of the same title, proposing that exis
 
 A corollary is that #meaning is found in #relationships (delving into spirituality, relationship with God)
 
+To see self is to see the other
+
 ### Quotes
 > Primary words do not signify things, but they intimate relations.
 > 

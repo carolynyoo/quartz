@@ -1,1 +1,3 @@
 Spirit and sentience lives in all beings. One can find the "holy in nature." 
+
+Mentioned in [[Braiding Sweetgrass]]

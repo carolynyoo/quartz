@@ -7,3 +7,7 @@ To satiate my desire while actually providing something *new*, not just a repack
 * Past sketches, drawings
 * Public Domain Archive
 * Book I've already read 
+
+Update: June 2026 after Dog Trot Residency
+* Kate Bush!
+* *The Chronology of Water*

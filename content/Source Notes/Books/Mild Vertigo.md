@@ -22,5 +22,6 @@ Must be a reader who loves interiority! The craft of the book was very intention
 "The thing about being boring, having a boring life, is that you should do it while you still can, if you don't have time to be bored, you'll be exhausted."
 
 "Boring, mediocre, eventless" - a feeling existed separately from any feeling of dissatisfaction 
+[[You can be unhappy even when you're feeling good most of the time.]]
 
 From Kate Zambreno's afterword: "Narrative like an aviary" - exterior becomes the interior (scene recalling grocery store aisles)

@@ -12,3 +12,4 @@
 * Pursuing goals for their own sake, not for service or worth
 * Cross-examining one's inner critic (where is self-criticism or doubt coming from? what is the evidence?)
 * Act from logos or yang (order, forward movement)
+

@@ -12,7 +12,7 @@ Read in 2018
 * Ruth's character mainly as a reader and the role a reader plays in a story, as exposition—brief exploration of dissatisfaction and isolation
 	* voice of the narrator is strong and lots of fun 
 * Unabashed use of foreign words, with footnotes to explain
-* [[Shishōsetsu, I-Novel]]
+* [[I-Novel]]
 	> "has been cited...in reference to issues of truthfulness and fabrication, highlighting the tension between self-revelatory, self-concealing, and self-effacing acts."
 
 

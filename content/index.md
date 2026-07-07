@@ -7,5 +7,5 @@ Dive into [[Concepts]], [[One Sentence Beliefs]], and [[How to]] pages to start 
 
 Reference [[Source Notes/Books]], [[Source Notes/Film]], and [[Source Notes/People]] to find inspiration.
 
-*First published February 8, 2026. Last updated June 25, 2026*
+*First published February 8, 2026. Last updated July 7, 2026*
 ![[line_bouquet2.png]]

@@ -1,0 +1,7 @@
+Movie about a married couple living in SF who are both miserable and fight all the time. Sad **Joe** with failed creative dreams played by Seth Rogen, anxious **Angela** who folded her art dreams and is trying to hold it all together played by Olivia Wilde. Upstairs neighbors **Hawk** (Edward Norton) and Pina (**Penelope** Cruz) visit for the evening.
+
+Excitement over orgy parties, constant comparison, finding desire again amongst strangers, so much resentment blaming the other for one’s own life disappointments. The movie ends without knowing if Hawk and Pina were really there or just a projection, a fantasy. What crosses the divide, bridges the wide gap between Angela and Joe is a rooting to the past—playing piano at the end, a circling back to see one’s self and each other again.
+
+I really enjoyed this movie. First it was so dang FUNNY—Seth Rogen I will love him and watch him in anything, Penelope Cruz is incredibly gorgeous, Olivia Wilde nails the anxious type A character so well. I love that the misery is tied to perceived worthlessness around creative and financial success, and how that manifests in worthiness around sex too. And how so often desire is repressed for women as means for self-control.
+
+Esther Perel consulted for the movie (a fun detail to notice in the credits)
